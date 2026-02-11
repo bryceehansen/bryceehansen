@@ -1,8 +1,8 @@
 # about me
 
-cozmo/bryce/asriel ; he/it/they
-object shows, glitch productions, really just indie animation in general, 
-and rpgs and psychology and horror. and all of them combined
+cozmo/bryce/asriel ; he/it/they !
+currently hyperfixated on object shows and indie animation, my special interest is psychology
+
 
 ---
 
